@@ -109,6 +109,8 @@ These are the components outlined in sugercosmetic's site. All sugercosmetic's c
 
 [@Anand](https://github.com/anandmpatil1997)
 
+[@Ajay](https://github.com/Ajaykvishwakarma)
+
 ### Over_All 
 
 That is so funny! :joy:   
